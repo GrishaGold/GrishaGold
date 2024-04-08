@@ -1,1 +1,2 @@
-![ss13-angry-birds](https://github.com/GrishaGold/GrishaGold/assets/91083635/d402305d-f1d8-4776-a9f2-c24d0a17cb69) 
+![ss13-angry-birds](https://github.com/May-SKiY/May-SKiY/assets/91083635/b3a830bf-9d3e-4677-b9c2-f986c6d4fa2f)
+
